@@ -1,3 +1,2 @@
-![coudl u tell it's my_ second fav photo of him…](https://github.com/user-attachments/assets/576a914f-bcb7-4b45-b5a5-36e888dff584)
+![shiho csard](https://github.com/user-attachments/assets/3f5984bc-f6cc-4c03-bd51-115fd131a09d)
 
-me
