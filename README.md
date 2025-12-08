@@ -19,4 +19,4 @@ i dont know why its so bigh ok i quit(quot) at devesto ok
 
 ![](https://image2url.com/images/1765209911961-8c84b628-c153-42a1-af18-58a133b2ae36.png)
 
-alt to the above
+alt to the above (not finishing) ref to the music vid "be careful! vocaloid producer!"
