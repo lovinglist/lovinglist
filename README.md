@@ -17,3 +17,6 @@ i dont know why its so bigh ok i quit(quot) at devesto ok
  atabook thing
 
 
+![](https://image2url.com/images/1765209911961-8c84b628-c153-42a1-af18-58a133b2ae36.png)
+
+alt to the above
