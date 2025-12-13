@@ -2,7 +2,8 @@
                          
  
 e  ⤷ ゛um so hi hello my uhh name is uhh list uhh ok call me either list,applewawafoo/wawafoo, or vero ˎˊ˗   
-(psst...spacehey outdated ok....havent added and customized things....x_x)
+(psst...spacehey outdated ok....havent added and customized things....🤫🤫🤫🤫🤫)
+
 how do i do this um
 
 
