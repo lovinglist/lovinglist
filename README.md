@@ -1,6 +1,8 @@
-<img width="638" height="111" alt="Image" src="https://github.com/user-attachments/assets/4a5f5f70-dcf7-45ad-93be-3c1d4a0d47da" />
+<img width="638" height="111" alt="Image" src="https://github.com/user-attachments/assets/4a5f5f70-dcf7-45ad-93be-3c1d4a0d47da" /><br/>
                          
  
+![](https://komarev.com/ghpvc/?username=lovinglist&label=the+mighty+pursuerlings&color=faa5bb&style=plastic)
+
 e  ⤷ ゛um so hi hello my uhh name is uhh list uhh ok call me either list,applewawafoo/wawafoo, or vero ˎˊ˗   
 (psst...spacehey outdated ok....havent added and customized things....🤫🤫🤫🤫🤫)
 
