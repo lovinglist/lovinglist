@@ -10,6 +10,7 @@ how do i do this um
 
 
    i am an artist(?) throws you yaoi and wip things ok uh insert insert #insert
+   !! PS!! THESE ARTS ARE OLD!!!!! i might upload the more recent arts ive done !!!
 
 
 ![](https://image2url.com/images/1765207911970-a3703c62-727b-40a9-9348-66d317b2880a.png)
