@@ -3,7 +3,7 @@
  
 ![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
 
- ⤷ um so hi hello my uhh name is uhh list uhh ok call me either list,applewawafoo/wawafoo, or vero ˎˊ˗   
+ ⤷ um so hi hello my uhh name is uhh list uhh ok call me either list, vanilla , or vero ˎˊ˗   
 (psst...spacehey outdated ok....havent added and customized things....🤫🤫🤫🤫🤫)
 
 how do i do this um
