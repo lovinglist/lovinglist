@@ -1,9 +1,9 @@
-<img width="638" height="111" alt="Image" src="https://github.com/user-attachments/assets/4a5f5f70-dcf7-45ad-93be-3c1d4a0d47da" /><br/>
+<img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/55929988-00c6-43bf-9bb3-9f041c53eefc" />
                          
  
-![](https://komarev.com/ghpvc/?username=lovinglist&label=the+mighty+pursuerlings&color=faa5bb&style=plastic)
+![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
 
-e  ⤷ ゛um so hi hello my uhh name is uhh list uhh ok call me either list,applewawafoo/wawafoo, or vero ˎˊ˗   
+ ⤷ um so hi hello my uhh name is uhh list uhh ok call me either list,applewawafoo/wawafoo, or vero ˎˊ˗   
 (psst...spacehey outdated ok....havent added and customized things....🤫🤫🤫🤫🤫)
 
 how do i do this um
