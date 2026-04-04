@@ -9,4 +9,9 @@
 ![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
 
  
-wip
+-   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist 
+
+-  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting !
+
+heres some of my drawings !! ^.^ ( i suck at colouring n things bro )
+
