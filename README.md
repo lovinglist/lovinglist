@@ -25,3 +25,5 @@ ok bro trad art it SUCKS
 ![Image](https://github.com/user-attachments/assets/0229a79e-5853-4509-8cd6-f326fdcfe7c1)
 
 I gave up on this one I do NOT know how to colour and the hand looks so off uuughhh
+
+![Image](https://github.com/user-attachments/assets/117dda6a-fa07-4aaa-886d-875cf09b5f3a) ![Image](https://github.com/user-attachments/assets/a91fabef-c840-49af-ab3b-df6ca2dc00d4) ![Image](https://github.com/user-attachments/assets/6fe75670-1bb3-498f-8337-58ae6e684ee8)
