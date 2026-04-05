@@ -13,6 +13,9 @@
 
 -  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting !
 
+- note from me is that strwapage is stilloutdated and would rmk idk
+
+  
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
 <img width="2048" height="123" alt="Image" src="https://github.com/user-attachments/assets/492df590-8b00-4f7c-96cd-9e9b3683a6b1" />
 
