@@ -1,9 +1,8 @@
 <img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/55929988-00c6-43bf-9bb3-9f041c53eefc" />
 
 
-
-  ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
-
+<img width="2048" height="123" alt="Image" src="https://github.com/user-attachments/assets/492df590-8b00-4f7c-96cd-9e9b3683a6b1" />
+  
 
 
 ![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
@@ -17,7 +16,7 @@
 
   
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
-<img width="2048" height="123" alt="Image" src="https://github.com/user-attachments/assets/492df590-8b00-4f7c-96cd-9e9b3683a6b1" />
+
 
 heres some of my drawings !! ^.^ ( i suck at colouring n things bro )
 
