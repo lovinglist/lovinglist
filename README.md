@@ -12,7 +12,7 @@
 
 -  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting !
 
-- note from me is that strwapage is stilloutdated and would rmk idk
+- note from me is that strwapage is stilloutdated and would rmk idk AMD ATABOOK IS NOT REMAKED YET+FINISHED ISTG BRO
 
   
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
