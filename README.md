@@ -30,4 +30,3 @@ I gave up on this one I do NOT know how to colour and the hand looks so off uuug
 
 ![Image](https://github.com/user-attachments/assets/117dda6a-fa07-4aaa-886d-875cf09b5f3a) ![Image](https://github.com/user-attachments/assets/a91fabef-c840-49af-ab3b-df6ca2dc00d4) ![Image](https://github.com/user-attachments/assets/6fe75670-1bb3-498f-8337-58ae6e684ee8)
 
-https://github.com/user-attachments/assets/a99f9989-d56b-4609-a11d-1b395b74827d
