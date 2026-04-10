@@ -9,7 +9,7 @@
 
  https://archiveofourown.org/works/82847256
 
- CHECK OUT RIGHT NOOOW!!!!! OOMF MADE THIS GHEPME EEEYEYEYEY LOVEYOU OOMF @wishlzx
+ CHECK OUT RIGHT NOOOW!!!!! OOMF MADE THIS GHEPME EEEYEYEYEY LOVEYOU OOMF @wishlizx
 
  
 -   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist 
