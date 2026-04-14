@@ -24,13 +24,9 @@
 (digi drawings r in progress? I think?) 
 heres some of my drawings !! ^.^ ( i suck at colouring n things bro )
 
-![Image](https://github.com/user-attachments/assets/45d8bd3d-4c76-4658-9e7b-4480367a2ef6)
+![Image](https://github.com/user-attachments/assets/72f2e056-bfb7-4d30-aba4-92c645542058)
 
-okbro the angle might make it look wonky akh
-
-![Image](https://github.com/user-attachments/assets/20fbb028-6d89-4989-b651-cea9c209f2a6)
-
-mhm
+yayyy
 
 ![Image](https://github.com/user-attachments/assets/d132bce5-d7cc-4e48-b577-91b1e30ad482)
 
