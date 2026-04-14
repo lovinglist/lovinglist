@@ -21,16 +21,21 @@
   
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
 
-
+(digi drawings r in progress? I think?) 
 heres some of my drawings !! ^.^ ( i suck at colouring n things bro )
+
+![Image](https://github.com/user-attachments/assets/45d8bd3d-4c76-4658-9e7b-4480367a2ef6)
+
+okbro the angle might make it look wonky akh
+
+![Image](https://github.com/user-attachments/assets/20fbb028-6d89-4989-b651-cea9c209f2a6)
+
+mhm
 
 ![Image](https://github.com/user-attachments/assets/d132bce5-d7cc-4e48-b577-91b1e30ad482)
 
-ok bro trad art it SUCKS
+old lelelel
+ok bro trad art suuucks
 
-![Image](https://github.com/user-attachments/assets/0229a79e-5853-4509-8cd6-f326fdcfe7c1)
-
-I gave up on this one I do NOT know how to render and the hand looks so off uuughhh
-
-![Image](https://github.com/user-attachments/assets/117dda6a-fa07-4aaa-886d-875cf09b5f3a) ![Image](https://github.com/user-attachments/assets/a91fabef-c840-49af-ab3b-df6ca2dc00d4) ![Image](https://github.com/user-attachments/assets/6fe75670-1bb3-498f-8337-58ae6e684ee8)
+! ![Image](https://github.com/user-attachments/assets/a91fabef-c840-49af-ab3b-df6ca2dc00d4) ![Image](https://github.com/user-attachments/assets/6fe75670-1bb3-498f-8337-58ae6e684ee8)
 
