@@ -14,7 +14,7 @@
  
 -   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist 
 
--  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting !
+-  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting, block tales !
 
 - note from me is that strwapage is stilloutdated and would rmk idk leeeee atabook is the same although i woukd change it later
 
