@@ -16,7 +16,7 @@
 
 -  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting, block tales !
 
-- note from me is that strwapage is stilloutdated and would rmk idk leeeee atabook is the same although i woukd change it later
+- note from me is that strwapage is #OBLITERATED and i will make another strwp thank youwww leeeee atabook loho is #unfinished
 
   
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
