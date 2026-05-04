@@ -7,9 +7,9 @@
 
 ![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
 
-[me nd my yumeship fanfic by oomf LOL](https://archiveofourown.org/works/82847256) ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ [rentry^^](https://rentry.co/pie-rrot)
+[me nd my yumeship fanfic by oomf LOL](https://archiveofourown.org/works/82847256) ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ [matching rentyr ^q^](https://rentry.co/pie-rrot)
 
- ↑ BOTH OF THESE ARE GIFTED BY MY OOMMFFFF @wishlizx FOLLOW HER NOEW!!! ↑
+ ↑ BOTH OF THESE ARE GIFTED BY MY OOMMFFFF [@wishlizx](https://github.com/wishlizx)   FOLLOW HER NOEW!!! ↑
 
  
 -   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist 
