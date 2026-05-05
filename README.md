@@ -7,7 +7,7 @@
 
 ![](https://komarev.com/ghpvc/?username=lovinglist&label=visitors&color=faa5bb&style=plastic)
 
-[me nd my yumeship fanfic by oomf LOL](https://archiveofourown.org/works/82847256) ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ [matching rentyr ^q^](https://rentry.co/pie-rrot)
+[me nd my yumeship fanfic by oomf LOL](https://archiveofourown.org/works/82847256) ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ ♡ ★ [matching rentyr ^q^](https://rentry.co/pie-rrot) ꒰ঌ ໒꒱ https://rentry.co/pierrotmylove AKH!!! 
 
  ↑ BOTH OF THESE ARE GIFTED BY MY OOMMFFFF [@wishlizx](https://github.com/wishlizx)   FOLLOW HER NOEW!!! ↑
 
