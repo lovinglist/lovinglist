@@ -31,7 +31,8 @@ yayyy
 ![Image](https://github.com/user-attachments/assets/d132bce5-d7cc-4e48-b577-91b1e30ad482)
 
 old lelelel
-ok bro trad art suuucks
 
-! ![Image](https://github.com/user-attachments/assets/a91fabef-c840-49af-ab3b-df6ca2dc00d4) ![Image](https://github.com/user-attachments/assets/6fe75670-1bb3-498f-8337-58ae6e684ee8)
 
+ dear god
+
+ <img width="1640" height="720" alt="Image" src="https://github.com/user-attachments/assets/f6c0b508-8458-4186-b70f-b0e9676bdaa6" />
