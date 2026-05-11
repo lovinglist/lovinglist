@@ -21,8 +21,7 @@
   
 <img width="2048" height="171" alt="Image" src="https://github.com/user-attachments/assets/87714556-db3f-434e-a265-f247c3e8ab06" />
 
-(digi drawings r in progress? I think?) 
-heres some of my drawings !! ^.^ ( i suck at colouring n things bro )
+heres my drawings lalala
 
 ![Image](https://github.com/user-attachments/assets/72f2e056-bfb7-4d30-aba4-92c645542058)
 
