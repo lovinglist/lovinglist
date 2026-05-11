@@ -12,7 +12,7 @@
  ↑ BOTH OF THESE ARE GIFTED BY MY OOMMFFFF [@wishlizx](https://github.com/wishlizx)   FOLLOW HER NOEW!!! ↑
 
  
--   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist 
+-   ♡      list / vanilla / vero  .  per "  any , apagender ⓘ  aroace ᢉ𐭩  pansexual  ,  trad + digital artist (I am very inconsistent in drawing so it's often my drawings from a week ago is named "old" due to my art style change sorry) 
 
 -  fandoms i am in!! (the ones im big about/ hyperfix) : the freak circus , pjsk , regretavator , phighting, block tales !
 
