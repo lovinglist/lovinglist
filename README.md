@@ -1,5 +1,7 @@
 #Heeey placeholderrr awww
 
+" save an egg, crack a pierrot. "
+
 [me nd my yumeship fanfic by oomf LOL](https://archiveofourown.org/works/82847256) 
 
 [matching rentyr ^q^](https://rentry.co/pie-rrot)
