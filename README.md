@@ -8,6 +8,10 @@ https://rentry.co/pierrotmylove  ♡♡
 
  ↑ ALL OF THESE ARE GIFTED BY MY OOMMFFFF [@wishlizx](https://github.com/wishlizx)   FOLLOW HER NOEW!!!  
 
+<img width="1054" height="841" alt="Image" src="https://github.com/user-attachments/assets/d2a848da-26b4-4265-b8d0-6809652dc1fb" />
+
+Awwwww hello soermquin
+
 
 <img width="720" height="926" alt="Image" src="https://github.com/user-attachments/assets/08dd18c4-4651-4256-8106-6012f9298a35" />
 
