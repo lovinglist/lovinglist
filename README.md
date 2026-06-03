@@ -2,19 +2,22 @@
 
 
 <p align="center">
+꒰ঌ ໒꒱
+
+<p align="center">
     <a href="https://rentry.co/pie-rrot">matching rentry<a/>
 
   <p align="center">
   ♡
 
 <p align="center">
-  https://rentry.co/pierrotmylove
+  <a href="https://rentry.co/pierrotmylove">pierrot my love ><<a/>
 
 <p align="center">
   ♡
 
  <p align="center">
- https://archiveofourown.org/works/82847256
+ <a href="https://archiveofourown.org/works/82847256">yumeship fanfic by oomf ♡<a/>
 
 
 <p align="center">
@@ -22,7 +25,7 @@
 
   
  <p align="center">
- all from https://github.com/wishlizx
+ all from <a href="https://github.com/wishlizx">@wishlizx<a/>
 
 
 <p align="center">
@@ -30,4 +33,4 @@
 
     
  <p align="center">
- how do i rename the url thing pls help (੭ ;´ ⌂ `;)੭ it doesnt work using the [name](link)
+ " u  got  me  thinkin'  that  i  want  u ,  want  u . but u dont even like me , like i do !!
