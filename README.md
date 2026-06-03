@@ -2,3 +2,27 @@
 
 
 <p align="center">
+    https://rentry.co/pie-rrot
+
+  <p align="center">
+  ♡
+
+<p align="center">
+  https://rentry.co/pierrotmylove
+
+<p align="center">
+  ♡
+
+ <p align="center">
+ https://archiveofourown.org/works/82847256
+
+
+<p align="center">
+  ↑
+
+  
+ <p align="center">
+ all from https://github.com/wishlizx
+
+ <p align="center">
+ how do i rename the url thing pls help (੭ ;´ ⌂ `;)੭ it doesnt work using the [name](link)
