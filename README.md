@@ -24,5 +24,10 @@
  <p align="center">
  all from https://github.com/wishlizx
 
+
+<p align="center">
+  ✦
+
+    
  <p align="center">
  how do i rename the url thing pls help (੭ ;´ ⌂ `;)੭ it doesnt work using the [name](link)
