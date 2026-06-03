@@ -14,7 +14,7 @@
   <a href="https://rentry.co/pierrotmylove">pierrot my love ><<a/>
 
 <p align="center">
-  ♡
+  ★
 
  <p align="center">
  <a href="https://archiveofourown.org/works/82847256">yumeship fanfic by oomf ♡<a/>
