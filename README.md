@@ -1,6 +1,6 @@
 <p align="center">
    <a href="https://github.com/wishlizx">@wishlizx<a/>
-   always the roguefort to my cream unicorn 󠀠󠀠󠀠󠀠♡
+   the roguefort to my cream unicorn 󠀠󠀠󠀠󠀠♡
 
 <br/>
 
