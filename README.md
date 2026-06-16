@@ -39,6 +39,15 @@
  <a href="https://archiveofourown.org/works/82847256">yumeship fanfic by oomf ♡<a/>
 
 
+
+<p align="center">
+✴︎
+
+
+
+<p align="center">
+<a href="https://archiveofourown.org/works/86670361">short unserious fanfic of roguecream awwWWWWWW<a/>
+
 <p align="center">
   ↑
 
