@@ -1,21 +1,14 @@
 <p align="center">
    <a href="https://github.com/wishlizx">@wishlizx<a/>
    the roguefort to my cream unicorn 󠀠󠀠󠀠󠀠♡
-
 <br/>
 
 <br/>
 
-
-
-
-<br/><img width="2083" height="1569" alt="Image" src="https://github.com/user-attachments/assets/b5624eee-158b-4507-af67-a61390d473e4" 
-/>
-
-<br/>
 
 <p align="center">
-     <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=6000&pause=700&color=F7F7F7&width=435&lines=you+got+me+thinkin%E2%80%99+that%E2%80%94;i+want+you%2C+want+you!+;but+you+dont+even+like+me%2C;like+i+do.." alt="Typing SVG" /></a>
+
+<img width="450" height="450" alt="Image" src="https://github.com/user-attachments/assets/6df9370b-9381-451c-9a1b-262c2cf15a54" />
 
 
 <p align="center">
@@ -55,13 +48,6 @@
  <p align="center">
  all from <a href="https://github.com/wishlizx">@wishlizx<a/>
 
-
 <p align="center">
-  ✦
 
-    
- <p align="center">
- love love love roguecream mwah xx 
-
-<p align="center">
- minecrfayt 🤤
+<img width="255" height="374" alt="Image" src="https://github.com/user-attachments/assets/9e551523-f17d-4256-9975-ebcb1a6882ca" />
