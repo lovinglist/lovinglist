@@ -12,7 +12,7 @@
 
 
 <p align="center">
-    ꒰ঌ ໒꒱
+  ♡  ╭╯ did you know this guy will bop at every beat ? ゛░
 
 
 
