@@ -1,9 +1,3 @@
-<p align="center">
-   <a href="https://github.com/wishlizx">@wishlizx<a/>
-   the roguefort to my cream unicorn 󠀠󠀠󠀠󠀠♡
-<br/>
-
-<br/>
 
 
 <p align="center">
