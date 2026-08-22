@@ -2,13 +2,13 @@
 
 <p align="center">
 
-<img width="450" height="450" alt="Image" src="https://github.com/user-attachments/assets/6df9370b-9381-451c-9a1b-262c2cf15a54" />
+<img width="239" height="300" alt="Image" src="https://github.com/user-attachments/assets/38c7beec-47e0-40ca-8a75-d4ab325cb465" /> 
+
 
 
 <p align="center">
-  ♡  ╭╯ did you know this guy will bop at every beat ? ゛░
 
-
+  <img width="400" height="38" alt="Image" src="https://github.com/user-attachments/assets/980c758c-34fc-439e-b3ca-c5ba2bf2c915" />
 
 <p align="center">
     <a href="https://rentry.co/pie-rrot">matching rentry<a/>
@@ -17,13 +17,13 @@
   ♡
 
 <p align="center">
-  <a href="https://rentry.co/pierrotmylove">pierrot my love ><<a/>
+  <a href="https://rentry.co/pierrotmylove">ex yume/old yume<a/>
 
 <p align="center">
   ★
 
  <p align="center">
- <a href="https://archiveofourown.org/works/82847256">yumeship fanfic by oomf ♡<a/>
+ <a href="https://archiveofourown.org/works/82847256">old/ex yumeship fanfic by oomf ♡<a/>
 
 
 
@@ -43,5 +43,4 @@
  all from <a href="https://github.com/wishlizx">@wishlizx<a/>
 
 <p align="center">
-
-<img width="255" height="374" alt="Image" src="https://github.com/user-attachments/assets/9e551523-f17d-4256-9975-ebcb1a6882ca" />
+<img width="200" height="139" alt="Image" src="https://github.com/user-attachments/assets/efa896dd-c999-4bc5-b97c-32041c6e1323" />
