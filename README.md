@@ -47,4 +47,10 @@
  all from <a href="https://github.com/wishlizx">@wishlizx<a/>
 
 <p align="center">
-<img width="200" height="139" alt="Image" src="https://github.com/user-attachments/assets/efa896dd-c999-4bc5-b97c-32041c6e1323" />
+<img width="160" height="160" alt="촬영_20261115_131805" src="https://github.com/user-attachments/assets/b0603643-d7bd-4478-b48a-fd560433f065" />
+
+<img width="160" height="160" alt="촬영_20261115_131604" src="https://github.com/user-attachments/assets/c7317e96-ee29-4dd9-97cd-e7f08163ae9c" />
+
+
+<p align="center">
+my little fat fucks (oc)
